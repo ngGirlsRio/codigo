@@ -1,3 +1,5 @@
+![](https://raw.githubusercontent.com/ngGirlsRio/codigo/master/logo.png)
+
 # Código de Conduta do ngGirls Rio de Janeiro
 Este documento contém informações importantes sobre sua conduta durante o **ngGirls Rio de Janeiro**. Pedimos que leia atentamente, pois ao participar do evento, você automaticamente concorda com este código.
 
