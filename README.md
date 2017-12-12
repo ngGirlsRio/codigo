@@ -31,3 +31,8 @@ Consideramos **inapropriado** utilizar imagens de cunho sexual, proferir discurs
 **Qualquer participante que cometa um ato de assédio e/ou tenha um comportamento inapropriado será retirado do evento sem direito à argumentação.**
 
 As organizadoras estão à disposição para tomarem as decisões cabíveis de modo a proteger a integridade física e mental das participantes dentro do local físico onde ocorrerá o evento, durante toda sua duração.
+
+## Reportando assédio, constrangimento e comportamentos inapropriados
+Se você estiver sendo assediada ou perceber que outra pessoa está sendo assediada, **nos informe imediatamente** pois tomaremos as medidas cabíveis. 
+
+As organizadoras estão bem informadas e preparadas para lidar com este tipo de incidente. Sua participação e sua integridade estão em primeiro lugar.
