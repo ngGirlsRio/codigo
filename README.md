@@ -23,8 +23,11 @@ O ngGirls dedica-se a proporcionar uma experiência de workshop sem assédio par
 
 ### Participantes que violarem essas regras serão expulsos do evento!
 
-## Versão longa:
+## Versão longa
 Consideramos **assédio** todo e qualquer comentário ofensivo sobre gênero, orientação sexual, deficiência, aparência física, vestimentas, tamanho corporal, raça e religião; intimidação, perseguição, contato físico inapropriado e atenção sexual indesejável.
+
 Consideramos **inapropriado** utilizar imagens de cunho sexual, proferir discurso de ódio e fazer qualquer tipo de piada ou comentário que possa vir a ofender qualquer uma das pessoas presentes no evento.
-**Qualquer participante que cometa um ato de assédio e/ou tenha um comportamento inapropriado será retirado do evento.**
+
+**Qualquer participante que cometa um ato de assédio e/ou tenha um comportamento inapropriado será retirado do evento sem direito à argumentação.**
+
 As organizadoras estão à disposição para tomarem as decisões cabíveis de modo a proteger a integridade física e mental das participantes dentro do local físico onde ocorrerá o evento, durante toda sua duração.
