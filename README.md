@@ -18,5 +18,13 @@ O ngGirls dedica-se a proporcionar uma experiência de workshop sem assédio par
 - Não publique fotografias de pessoas sem o seu consentimento. 
 - Lembre-se de que o assédio e as piadas sexistas, racistas, LGBTQfóbicas ou excludentes não são apropriados nem dentro nem fora do ngGirls.
 - Trate as pessoas como gostaria de ser tratado(a).
+- Nós levamos este Código de Conduta MUITO a sério.
+- Caso tenha qualquer problema, não hesite em comunicar às organizadoras!
 
 ### Participantes que violarem essas regras serão expulsos do evento!
+
+## Versão longa:
+Consideramos **assédio** todo e qualquer comentário ofensivo sobre gênero, orientação sexual, deficiência, aparência física, vestimentas, tamanho corporal, raça e religião; intimidação, perseguição, contato físico inapropriado e atenção sexual indesejável.
+Consideramos **inapropriado** utilizar imagens de cunho sexual, proferir discurso de ódio e fazer qualquer tipo de piada ou comentário que possa vir a ofender qualquer uma das pessoas presentes no evento.
+**Qualquer participante que cometa um ato de assédio e/ou tenha um comportamento inapropriado será retirado do evento.**
+As organizadoras estão à disposição para tomarem as decisões cabíveis de modo a proteger a integridade física e mental das participantes dentro do local físico onde ocorrerá o evento, durante toda sua duração.
